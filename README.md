@@ -1,2 +1,4 @@
 # resume_ada
-This repository if the resume for Patty C. Miller
+This repository of the resume for Patty C. Miller.
+I hope this works.
+
