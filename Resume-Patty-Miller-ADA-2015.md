@@ -1,5 +1,4 @@
-# resume_ada
-PATTY MILLER                                                                                             (206) 850-3146 ∙ pattycmiller@hotmail.com ∙ www.linkedin.com/in/pattycmiller
+Resume-Patty-Miller-ADA-2015PATTY MILLER                                                                                             (206) 850-3146 ∙ pattycmiller@hotmail.com ∙ www.linkedin.com/in/pattycmiller
 
 LIBRARIAN
 
@@ -78,5 +77,3 @@ Little Bit Therapeutic Riding Center, July 2009 – July 2010
 
 
 PATTY C. MILLER, Page 2 of 2	(206) 850-3146 ∙ pattycmiller@hotmail.com
-
-
