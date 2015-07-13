@@ -1,6 +1,7 @@
-Resume-Patty-Miller-ADA-2015PATTY MILLER                                                                                             (206) 850-3146 ∙ pattycmiller@hotmail.com ∙ www.linkedin.com/in/pattycmiller
+PATTYMILLER                                                                                             
+(206) 850-3146 ∙ pattycmiller@hotmail.com ∙ www.linkedin.com/in/pattycmiller
 
-LIBRARIAN
+Astronomer
 
 Information professional with exceptional ability to drill down to specifics of reference questions to yield the most useful results. Ability to see big picture and apply salient information to immediate needs. Extremely dependable and highly organized.  Skillful in developing relationships across organizations to eliminate silos.
 
